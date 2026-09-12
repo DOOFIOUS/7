@@ -1,5 +1,5 @@
 ## ⧽ 02 ﹕artworks
-⊱ WIP!
+WIP!
 ***
 
 
