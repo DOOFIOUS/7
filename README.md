@@ -11,5 +11,5 @@ WIP!
 
 ***
 
-WIP, I removed most of my artworks, but have my J-19 art for now! :-D.
+I removed most of my previous artworks.
 No commissions, will open soon.
