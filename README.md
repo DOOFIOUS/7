@@ -22,6 +22,9 @@
 
 <img width="2448" height="1500" alt="image" src="https://github.com/user-attachments/assets/3229017a-ec43-4fc3-9cc3-712ffe5e62df" />
 
+<img width="2442" height="3442" alt="bebe doof" src="https://github.com/user-attachments/assets/07eae3b0-9270-4e09-863f-0c1d0e052b54" />
+
+
 ***
 
 the name u see in the vid are the old names i had. these arent so recent but they are my favs </3
