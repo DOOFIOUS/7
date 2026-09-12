@@ -5,6 +5,7 @@ WIP!
 
 <img width="2442" height="3442" alt="bebe doof" src="https://github.com/user-attachments/assets/07eae3b0-9270-4e09-863f-0c1d0e052b54" />
 
+<img width="2486" height="2410" alt="doofstead" src="https://github.com/user-attachments/assets/761773d7-7a68-431c-8d58-6fcf16dc02fc" />
 
 ***
 
