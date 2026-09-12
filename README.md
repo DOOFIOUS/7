@@ -1,5 +1,5 @@
-## ⧽ 02 ﹕some artworks
-⊱ this is not all but i'm just gonna put a few here...
+## ⧽ 02 ﹕artworks
+⊱ WIP!
 ***
 
 
