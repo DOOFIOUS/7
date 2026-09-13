@@ -11,6 +11,8 @@ WIP!
 
 <img width="1861" height="1527" alt="more doofstead" src="https://github.com/user-attachments/assets/9d6c442d-fc95-4253-a6ff-5df6ef810a78" />
 
+<img width="1861" height="1527" alt="doofstead cuties2" src="https://github.com/user-attachments/assets/95ca3f9f-ecf3-46a5-8a68-10823ce708ec" />
+
 ***
 
 I removed most of my previous artworks.
