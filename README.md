@@ -29,6 +29,10 @@ WIP!
 
 <img width="1326" height="1799" alt="A-6307-B" src="https://github.com/user-attachments/assets/1983c736-248b-432f-b9fb-810eb68747b9" />
 
+<img width="1118" height="1387" alt="creepy morty" src="https://github.com/user-attachments/assets/8d491f27-55c6-4331-b572-f53e8315c4f9" />
+
+<img width="1545" height="1134" alt="#male 2" src="https://github.com/user-attachments/assets/13b2bdac-77d5-47df-b7f7-c0f98d23ac4f" />
+
 ***
 
 I removed most of my previous artworks.
