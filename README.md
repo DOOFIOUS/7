@@ -37,6 +37,8 @@ WIP!
 
 <img width="1878" height="2175" alt="primefuss" src="https://github.com/user-attachments/assets/f9d570c0-2933-4d6d-833f-c60a5eb74144" />
 
+<img width="1287" height="1710" alt="doofus bby" src="https://github.com/user-attachments/assets/21d63000-2b71-4d8d-a987-6c0ad1c8cf3b" />
+
 ***
 
 I removed most of my previous artworks.
