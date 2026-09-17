@@ -33,6 +33,10 @@ WIP!
 
 <img width="1545" height="1134" alt="#male 2" src="https://github.com/user-attachments/assets/13b2bdac-77d5-47df-b7f7-c0f98d23ac4f" />
 
+<img width="1878" height="2175" alt="prickcest slop" src="https://github.com/user-attachments/assets/eee94d5a-dcd0-4419-9dc4-048d1b2cc159" />
+
+<img width="1878" height="2175" alt="primefuss" src="https://github.com/user-attachments/assets/f9d570c0-2933-4d6d-833f-c60a5eb74144" />
+
 ***
 
 I removed most of my previous artworks.
