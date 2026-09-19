@@ -39,6 +39,10 @@ WIP!
 
 <img width="1287" height="1710" alt="doofus bby" src="https://github.com/user-attachments/assets/21d63000-2b71-4d8d-a987-6c0ad1c8cf3b" />
 
+<img width="1795" height="2303" alt="queen bee mindy" src="https://github.com/user-attachments/assets/88ac3240-27a7-4952-981e-0c2a59aa3cca" />
+
+<img width="2121" height="1488" alt="vampire prince morty" src="https://github.com/user-attachments/assets/75ed6043-047d-4f82-99df-3fe9c50ed775" />
+
 ***
 
 I removed most of my previous artworks.
